@@ -1,0 +1,1 @@
+# MEPS-SZ-F7-Mini
